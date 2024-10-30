@@ -1,1 +1,1 @@
-# Nova-Soft
+# না Nova-Soft
